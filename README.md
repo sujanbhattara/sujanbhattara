@@ -46,7 +46,7 @@
 
 *************
 
-From [sujanbhattar](https://github.com/sujanbhattar)
+From [sujanbhattarai](https://github.com/sujanbhattara)
 
 #### Thank You 🙏🏼
 
